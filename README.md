@@ -12,4 +12,5 @@ Brewed thyme with ginger slices served with grapes
 Canned tuna with red onion and sea kale. May be served with bread
 
 - Honey pancakes
+
 Dough:salt, oil, honey, cream+water or milk, eggs.
